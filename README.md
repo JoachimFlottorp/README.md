@@ -1,1 +1,1 @@
-![Stare](https://cdn.7tv.app/emote/60e5d610a69fc8d27f2737b7/1x)
+![Plink](https://cdn.7tv.app/emote/636ff14356c8c85a263c0037/4x.webp)
